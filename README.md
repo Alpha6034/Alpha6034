@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @Alpha6034
 - Commonly known as Afroz
 - 👀 I’m highly interested in cyber world & A.I
-- 🌱 I’m currently learning...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 currently learning......
 - 📫 reach me on insta __afroz__001__
 
 <!---
